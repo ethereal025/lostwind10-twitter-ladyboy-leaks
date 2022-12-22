@@ -80,3 +80,5 @@ ppcjj,
 2022.11.14[60套-50.1G]
 # Description
 此为百度网盘打包发出，分割成了5G左右文件夹方便下载。
+# Download
+链接: https://pan.baidu.com/s/1LJjzzeFKPEAqc1G5dxOTog 提取码: ycve 复制这段内容后打开百度网盘手机App，操作更方便哦
