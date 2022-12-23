@@ -1,6 +1,7 @@
 # lostwind10-twitter-ladyboy-leaks
 推特伪娘博主猫と爪呸罗呸罗视频（泄露）
-# Video List
+# Video 
+## List
 <pre>
 --21年02月至03月23日--
 JK-烟灰
@@ -68,7 +69,7 @@ ppcjj,
 近距离观看金金发射,
 黑白丝独角兽次大金金手冲,
 </pre>
-# Update Timetable
+## Update Timetable
 2022.1.24[32套-10.5G]
 
 2022.6.17[34套-19.4G]
@@ -78,11 +79,13 @@ ppcjj,
 2022.9.1（补档）
 
 2022.11.14[60套-50.1G]
+## 
 # Description
 ## Files
 此为百度网盘打包发出，分割成了5G左右文件夹方便下载。
 ## How to Unzip
-解压密码：<code>cychdacg.cc</code><br>
-每一个文件为单独一个单元。
+解压密码：<code>cychdacg.cc</code>。<br>
+每一个文件为单独一个单元。<br>
+电脑端请尝试使用winrar、7zip、bandzip等软件，手机端请使用ZArchiver。
 # Download
 链接: https://pan.baidu.com/s/1LJjzzeFKPEAqc1G5dxOTog 提取码: ycve 复制这段内容后打开百度网盘手机App，操作更方便哦
