@@ -1,5 +1,6 @@
 # lostwind10-twitter-ladyboy-leaks
 推特伪娘博主猫と爪呸罗呸罗视频（泄露）<br>
+已更新不限速的123云盘下载链接。
 # Video 
 ## List
 <pre>
@@ -85,7 +86,9 @@ ppcjj,
 ## Files
 此为百度网盘打包发出，分割成了5G左右文件夹方便下载。
 ## How to Unzip
+26/12/2022更新：百度网盘版包内带广告与捆绑，尽量使用提供的123云盘纯净包。
 解压密码：<code>cychdacg.cc</code>。<br>
+123云盘已二次修改，去除了密码与包内广告。<br>
 每一个文件为单独一个单元。<br>
 电脑端请尝试使用winrar、7zip、bandzip等软件，手机端请使用ZArchiver。
 # Download
