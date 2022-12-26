@@ -92,3 +92,5 @@ ppcjj,
 ## BaiduNetdisk
 链接: <code>https://pan.baidu.com/s/1Ae0Wf_3QIHFcTfaB8F9rOw</code> 提取码: <code>k59h</code> 复制这段内容后打开百度网盘手机App，操作更方便哦
 ## 123CloudDisk（26/12/2022）
+链接：<code>https://www.123pan.com/s/nvoSVv-0qTsh</code> 提取码:<code>HAqd</code><br>
+如果出现下载失败的情况，请尝试使用123云盘App下载、转存。
